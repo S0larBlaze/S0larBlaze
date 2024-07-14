@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @S0larBlaze
+- 👀 I’m interested in men
+- 🌱 I’m currently learning godot
+- 💞️ I’m looking to collaborate on games
+- 📫 How to reach me try
+- 😄 Pronouns: all
+- ⚡ Fun fact: im not gay
